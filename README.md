@@ -1,3 +1,5 @@
+![1760450064396](https://github.com/user-attachments/assets/ca048e53-33c1-4223-904c-30e2c1fb92cd)
+
 # Hi i'm Miguel,
 # 💫 About Me:
 🔭 I’m currently working on an AI Web APP<br>👯 I’m looking to collaborate on projects<br>🤝 I’m looking for help with some advices<br>🌱 I’m currently learning AI tools<br>💬 Ask me about my hobbies and some projects as well<br>⚡ Fun fact I draw, play basketball
